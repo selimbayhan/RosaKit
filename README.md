@@ -1,4 +1,4 @@
-# Ban Russia from SWIFT! Protect Ukrainian Sky! Send NATO to Ukraine! #BanRussiafromSwift #CloseTheSky #SendNatoToUkraine 
+
 
 # RosaKit
 
